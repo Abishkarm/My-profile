@@ -1,2 +1,2 @@
 # My-profile
-Compl;ete Resume 
+Complete Resume 
